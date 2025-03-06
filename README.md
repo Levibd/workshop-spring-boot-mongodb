@@ -101,4 +101,4 @@ Se tiver dúvidas ou sugestões, sinta-se à vontade para entrar em contato:
 
 ---
 
-Caso precise de ajustes ou queira incluir algo específico, é só avisar! 😊
+
